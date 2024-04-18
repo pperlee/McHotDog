@@ -51,4 +51,4 @@ Music albums：
 
 08.《差不多先生》，2008
 
-I may not collect all of McHotDog's music, but I have all listed mp3.
+I may not have collected all of McHotDog's music, but I have all of the MP3s I've listed.
