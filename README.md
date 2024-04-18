@@ -33,4 +33,4 @@ This is a list file of McHotDog's rap music. Listed by song name.
 
 16.韩流来袭
 
-I may not collect all McHotDog's music, but I have all listed mp3.
+I may not collect all of McHotDog's music, but I have all listed mp3.
